@@ -52,11 +52,10 @@ Projet de mémoire : cadre d’analyse sur la coévolution homme-technologie dan
 ---
 
 📫 **Me contacter / Collaborer** :  
-🔗 [LinkedIn](https://www.linkedin.com/in/ton-lien/)  
-🔗 [Email professionnel – à ajouter si tu le souhaites]
+🔗 [LinkedIn](www.linkedin.com/in/augustedakissaga-stratégie)  
+🔗 [Email professionnel – j.dakiss19@gmail.com]
 
 ---
 
 [![](https://visitcount.itsvg.in/api?id=gusto1996-stat&icon=0&color=0)](https://visitcount.itsvg.in)
 
-<!-- Powered by OpenAI & Proudly customized with ❤️ -->
